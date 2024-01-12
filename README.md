@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sahilsharma09877
-- 👀 I’m interested in money
-- 🌱 I’m currently learning making money
+- 👀 I’m interested in money.
+- 🌱 I’m currently learning to make money.
 - 📫 How to reach me - sahilsharma09877@gmail.com
 - ⚡ Fun fact: ... My sarcasm is really good and on point.
 

@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sahilsharma09877
-- 👀 I’m interested in money.
+- 👀 I’m interested in Data Analytics.
 - 🌱 I’m currently learning to make money.
 - 📫 How to reach me - sahilsharma09877@gmail.com
 - ⚡ Fun fact: ... My sarcasm is really good and on point.
